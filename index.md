@@ -17,7 +17,7 @@ _更新日期：2020.12.1_
 
 微博：[@秋芥子](https://weibo.com/fighting51?topnav=1&wvr=6&topsug=1&is_all=1)
 
-Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （以前更新过一些手账、少女前线、PCR相关的视频，现在很久没更新啦）
+Bilibili：[@秋芥子](https://space.bilibili.com/3360585) （最近更新了一个vlog可以去看看！剪的真的很用心了！以及以前更新过一些手账、少女前线、PCR相关的视频）
 
 Twitter：[@Missa_www](https://twitter.com/Missa_www)（不常用）
 
